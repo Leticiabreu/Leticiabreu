@@ -9,7 +9,7 @@ Meu nome é Letícia Abreu🌺
 - ### Você pode entrar em contato comigo 📬
 - [](00001088652086SP@al.educacao.sp.gov.br)
 
-- (https://media.tenor.com/3mFCKlvKLYgAAAAM/solace-taylor-davis.gif)
+- (https://media1.tenor.com/m/XU4z2IX7VOYAAAAd/violin-violinist.gif)
 
 
 
